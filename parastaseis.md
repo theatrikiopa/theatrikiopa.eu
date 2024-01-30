@@ -1,6 +1,4 @@
-![3lepta](https://github.com/different-ways/theatrikiopa.eu/assets/16403754/352d4bd5-4202-417d-a2e6-3bd0a699a7b3)# Παραστάσεις
-
-![gioi-kai-kores-tou-gianni-kalavrianou-05](https://github.com/different-ways/theatrikiopa.eu/assets/16403754/e653b538-ca10-43ae-af7f-eda4b940d322)
+# Παραστάσεις
 
 Η ομάδα ανεβάζει κάθε χρόνο μία ή περισσότερες παραστάσεις, ανάλογα με τον αριθμό των ατόμων που δηλώνουν συμμετοχή.
 
