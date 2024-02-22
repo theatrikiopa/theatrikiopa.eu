@@ -48,4 +48,4 @@ _تخت جمشی_
 
 Σας περιμένουμε στις επόμενες παραστάσεις μας!
 
-https://youtu.be/Rifjlb9HhWs?si=7RgTWzpx-cX40c0l
+https://www.youtube.com/watch?v=Rifjlb9HhWs
