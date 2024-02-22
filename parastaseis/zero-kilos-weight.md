@@ -61,6 +61,8 @@
 
 ![zero-kilos-weight-23](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/2990ae42-8baa-4854-8a36-81b054a1286c)
 
+![zero-kilos-weight-9](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/34745c09-6772-44a9-b3d8-0f65d942f70a)
+
 ![zero-kilos-weight-16](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/a2b833ec-c3d5-441a-a19f-a68faffcf8bf)
 
 ![zero-kilos-weight-14](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/cfada520-e7e5-4f90-99c1-92c4c3f12078)
