@@ -47,6 +47,8 @@
 Ευχαριστούμε πολύ το κοινό που παρευρέθηκε.
 Σας περιμένουμε στις επόμενες παραστάσεις μας!
 
+https://www.youtube.com/watch?v=Ay0fnoMT1oQ
+
 ![gioi-kai-kores-tou-gianni-kalavrianou-02](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/fc1db3ed-e962-4834-b321-93a0cfa570b8)
 
 ![gioi-kai-kores-tou-gianni-kalavrianou-03](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/4a505138-9119-43e9-b6be-14f424e8d09a)
@@ -66,5 +68,3 @@
 ![gioi-kai-kores-tou-gianni-kalavrianou-07-1](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/a01ee188-d248-41fe-ba7e-6a01bb0c996e)
 
 ![gioi-kai-kores-tou-gianni-kalavrianou-07](https://github.com/theatrikiopa/theatrikiopa.eu/assets/16403754/e249035a-cd2b-407e-9e14-76c2ffc1889f)
-
-https://www.youtube.com/watch?v=Ay0fnoMT1oQ
